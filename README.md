@@ -1,1 +1,1 @@
-# Editing
+# Editing # resolution full hd
